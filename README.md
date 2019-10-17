@@ -1,1 +1,3 @@
-# business-plan
+# Project disABLEd's business plan
+
+Collaborative repo for a business plan.
