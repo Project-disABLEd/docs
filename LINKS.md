@@ -9,3 +9,9 @@ https://kn.pfron.org.pl/download/5/505/06-MartaMisiewicz.pdf
 http://www.niepelnosprawni.pl/ledge/x/48853
 
 https://www.prawo.pl/samorzad/dostep-do-miejsc-publicznych-dla-niepelnosprawnych-w-polsce,321857.html
+
+https://www.booking.com/accessible-traveling/country/pl.pl.html
+
+https://www.wroclaw.pl/miejsca-przyjazne-niepelnosprawnym-we-wroclawiu
+
+http://www.niepelnosprawni.pl/
