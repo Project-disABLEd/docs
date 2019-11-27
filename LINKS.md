@@ -15,3 +15,5 @@ https://www.booking.com/accessible-traveling/country/pl.pl.html
 https://www.wroclaw.pl/miejsca-przyjazne-niepelnosprawnym-we-wroclawiu
 
 http://www.niepelnosprawni.pl/
+
+http://www.krakow.pl/bezbarier/ulgi_i_uprawnienia/8821,artykul,wykaz_miejsc_postojowych_dla_osob_niepelnosprawnych.html
